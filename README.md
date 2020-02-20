@@ -1,1 +1,1 @@
-# steven m griffin
+# Steven M Griffin
